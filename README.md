@@ -1,2 +1,2 @@
-# https-t.me-vsksexs
+t.me-vsksexs
 Знакомства
